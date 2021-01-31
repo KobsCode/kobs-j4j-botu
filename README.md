@@ -15,4 +15,3 @@
 > 📊▸ E-Posta adresi : kantasmehmetcan12@gmail.com
 
 > 🎮▸ Discord Nick : Kobs#0001
-https://cdn.discordapp.com/attachments/732889655225352215/804982136288706560/Discord_linki_acklamada_kobs.png
